@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-FABA940913MSRRTN04
+FABA940913MSRRTN04
